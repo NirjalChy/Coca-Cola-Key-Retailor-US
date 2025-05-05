@@ -1,1 +1,1 @@
-# Coca-Cola-Key-Retailor-US
+# Coca-Cola-Key-Retailer-US
